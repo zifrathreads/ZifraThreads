@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+Bespoke hand-painted suits and dupattas. Every piece is a unique masterpiece. Commission your custom Zifra Threads design today.
 <!--
 **zifrathreads/ZifraThreads** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
